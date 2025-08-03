@@ -1,2 +1,2 @@
-Hi, I’m @tracotr
+Hi, I’m tracotr
 or Jaxon
