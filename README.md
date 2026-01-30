@@ -1,7 +1,4 @@
-Hi, I’m tracotr  
-or Jaxon  
-[www.jaxon-king.com](https://www.jaxon-king.com)  
-trying to work on game 
+Hi, I’m Jaxon
 
 Ways to contact me:  
 email: kingjaxon03@gmail.com  
